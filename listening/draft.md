@@ -351,3 +351,282 @@ steered clear
 boost their employment prospects
 valuable element for their cv when they're applying for jobs
 cast doubt on
+hostel
+buckleigh
+pe97qt
+parliament
+politics
+cycling
+I'm also keen on the cinema
+canal
+bridge bridge bridge bridge bridge
+screen screen screen screen screen screen 
+straight
+straight
+straight 
+curved
+curved
+curved
+curved
+curtains
+curtains
+curtain
+curtains
+curtain
+curtains
+curtain
+curtains
+went away
+emigrate
+emigrate
+out of the area
+strategy
+strtegy
+strategy
+tactics
+tactics
+tactics
+tactics
+a little road that leads off the station square
+invest
+invent
+developed
+invent
+look at
+keep eye contact
+look at 
+keep eye contact
+contemporary
+contemporary
+contemporary
+contemporary
+present
+now
+present
+now
+contemporary
+dates back to 4000 BC, this took the form of glazes used for coating stone beads
+beads made of stone were convered in a coating 
+staff
+recruit
+recruit
+recruit
+recruit
+recruit
+worker
+worker
+staff
+standard
+criteria
+criteria
+criteria
+criteria
+standard
+standard
+further information
+don't complete course
+drop out course
+understaffed service
+staff shortages
+establish
+establish
+establish
+establish
+organize
+organize
+organize
+build
+construction
+construction
+set up
+set up 
+species spread
+extended the habitat
+habitat
+habit
+habitant
+to the delight of 
+appeal to
+largescale
+as a whole
+disease
+illness
+sickness
+problem
+downtown
+urban suburb
+outskirt
+countryside
+pattern
+pattern
+regulation
+trends
+regularities
+regularity
+prosperous
+THe prosperous
+prosperous
+other parts of 
+much of the rest of 
+other parts of 
+much of the rest of 
+incorporate a variety of art forms
+incorporates a variety of art forms
+dance singing animation and liv actors
+craft
+counter
+lead
+counter
+avoid
+widespread use
+adopted universally
+be surprised to learn
+realised that before
+jewellery
+jewllery
+ring 
+bracelets
+major
+cheif
+major 
+chief
+without enough consultation
+consultation
+consultation
+may not realise
+isn't conscious of the message
+suprise
+hadn't expected
+measure
+an index of 
+tips
+sharp points
+erratically
+erratically
+erratically
+unpredictably
+scrutiny
+scrutiny
+examination
+vary
+discrepancy
+discrepancy
+cabin
+cabin
+cabin
+cottage
+cabin
+eliminate
+eliminate
+disruption
+disruption
+interrupted
+non-fossil-based fuel
+fossil
+renewable energy
+clarinet
+clarinet
+clarinet
+descend into confusion
+experience confusion
+develop
+lack of 
+develop
+lack of
+develop
+develop
+lack of 
+lack of
+lack of
+excelled at
+used to be lacking
+omit
+omitting sides
+omit
+leave them away
+leave them away
+leave them away
+innovative
+innovative
+on the bend
+affecting
+affecting migration
+migration
+disturb
+disturbing
+disturbing migration
+young professional people
+graduates embark on career
+the mayor and all the other dignitaries
+dignitaries
+official
+attended by officials from the town
+rely completely on
+entirely dependent on 
+a successful on
+has been shown to work
+driving a renewed interest
+once again
+prestige
+status
+parade
+parade
+ceremony
+rite
+rite
+an acceptance that not all disease can be totally eliminated
+eliminated
+eliminated
+prone to illness
+average annual
+recognised value of 
+see the need of 
+recognised value of 
+begin to see the need of 
+permanent
+permanent
+permanent
+permanent
+especially interesting
+unusual
+pedestrian
+avoid 
+counter
+steered clear
+situated
+situated
+predator
+predator
+rare
+available
+name 
+anonymous
+local people and 
+customer
+custom
+customs
+customs
+marquee
+marquee
+tent
+marquee
+tent
+marquee
+tent
+marquee
+carnival
+carnival
+carnival
+carnival
+carnival
+carnival
+carnival
+providing
+providing
+sponsor
+sponsor
+providing
+sponsor
+rehearsal
+rehearsal
+cast doubt on 
