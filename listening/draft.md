@@ -1,4 +1,4 @@
-contaminant = pollutant
+~~contaminant~~ = pollutant
 taxi = cab = vehicle
 be beneficial to
 be of value
@@ -630,3 +630,861 @@ sponsor
 rehearsal
 rehearsal
 cast doubt on 
+amendment
+amendment
+amendment
+amendment
+check
+check
+check
+check
+amendment
+canal
+besides a canal
+canal
+canal
+besides a canal
+the north by a canal
+canal
+canal
+avoid
+steered clear
+steered clear
+avoid
+avoid
+steered clear
+surprise
+hadn't expect
+disused
+run-down
+disused
+run-down
+disused
+run-down
+would not have harmed
+would keep ... safe
+would not have harmed
+would   keep ... safe
+pedestrian
+in charge of 
+be responsible to 
+be responsible to 
+compensation
+compensation system
+compensation
+compensation system 
+innovative
+innovative
+innovative
+innovative
+innovative
+innovative
+may not realise
+may not realise
+isn't necessarily conscious of the message
+conscious
+especially interesting
+unusual
+unusual
+premiere
+premiere
+premiere
+The play will be preformed for the first time 
+canal
+canal
+canal
+canal
+canal
+canal
+canal
+deprived areas
+deprived areas
+deprived areas
+deprived areas
+deprived areas
+particularly useful for bright children from deprived area
+deprived area
+which favour socially-disadvantaged children
+socially-disadvantaged
+harmony
+harmony
+harmony
+young professional people
+young professional prople
+graduates embarking on careers
+careers
+careers
+career
+graduates embark on careers
+career
+on the bend
+on the bend
+descend into
+descend into confusion
+descend into confusion
+descend into confusion
+experience confusion
+descend into confusion
+experience confusion
+hazard
+dangerous
+dangerous
+hazard
+hazard
+hazard
+hazard
+dangerous
+compensation
+compensation
+compensation
+compensation
+contrast
+contrast
+contrast
+death rate
+death rate
+death rate
+death rate
+death rate
+death rate
+death rate
+mortality rate
+mortality
+mortality
+mortality
+mortality
+mortality
+precious metals
+metals
+metal
+metal
+precious metalss
+precious
+precious 
+metals
+precious
+metals
+craft
+craft
+craft
+craft
+craft
+advertising
+advertising
+advertising
+adveritis
+advertise
+advertisement
+advertising
+advertising 
+market
+market
+market
+marketed
+marketed
+market
+market
+advertising
+prospects
+boosting their employment prospects
+valuable element for their cv when they're applying for jobs
+valuable elment for their cv
+cabin
+cottage
+cabin
+cabin
+cabin
+cabin
+providing
+prividing
+sponsor
+sponsor
+sponsor
+sponsor
+amendment
+amendment
+amendment
+check
+amendment
+amendment
+amendment
+check
+check
+check
+check
+check
+amendment
+deadline
+deadline
+deadline
+deadline
+time pressure
+time pressure
+planing restrictions
+ceremony
+ceremony
+ceremony
+rite
+rate
+rite
+ceremony
+carnival
+carnival
+carnival
+carnival
+carnival
+look at 
+keep eye contact
+look at 
+keep eye contact
+pattern
+pattern
+pattern
+pattern
+trends
+regularities
+regularities
+regularities
+regular
+predator
+predator
+revise
+review
+review
+revise
+better
+superior
+rely completely on
+entirely dependent on 
+contrast
+contrast
+develop 
+lack of 
+develop
+lack of 
+affecting migration
+affecting migration
+disturbing migration
+jewellery
+rings 
+bracelets
+bracelet
+rings
+jewellery
+jewellery
+cast doubt on 
+cast doubt on 
+driving a renewed interest
+once again
+disruption
+disruption
+interrupt
+mortality
+mortality
+mortality
+situated
+situated
+situated
+situate
+situate
+standard
+criteria
+criteria
+criteria
+standard
+criteria
+criteria
+invent
+developed
+developed
+develop
+invent
+develop
+don complete course
+drop out of 
+deprived areas
+deprived areas
+socially-disadvantaged
+intense
+erratically
+erratically
+erratically
+erratically
+erratically
+unpredictably
+unpredictably
+prestige
+prestige
+status
+prestige
+prestige
+parade
+parade
+parade
+parade
+parade
+harmony
+harmony
+eliminate
+establish
+organize
+build 
+construction
+set up 
+anonymous
+rehearsal
+rehearsal
+rehearsal
+rehearsal
+rehearsal
+rehearsal
+rehearsal
+undermine
+undermine
+undermine
+to the delight of 
+to the delight of 
+to the delight of 
+to the delight of 
+appeal to 
+appeal to 
+omit 
+learn about different  culture
+culture
+local people and cutomes
+customs
+customs
+other parts of 
+other parts of 
+much of the rest of 
+much of the rest of
+widespread use
+widespread use
+not been adopted universally
+without enough consulation
+how littel research was done
+drawback
+largescale
+discrepancy
+discrepancy
+discrepancy
+discrepancy
+amendment
+amendment
+amendment
+amendment
+amendment
+amendment
+check
+marquee
+tent
+incorporate
+dance singing animation 
+emigrate
+out of the area
+emigrate
+strategy
+strategy
+strategy
+tactics
+tactics
+tactics
+strategy
+strategy
+tactics
+contact tutors
+tutors
+advanced
+ahead of time
+advanced
+recognised value of 
+see the need of 
+friendly 
+across the road from the bank
+tips
+sharp points
+staff
+recruit 
+worker
+recruit
+worker
+staff
+recruit
+recruit
+employ
+recruit
+worker
+permanent
+permanent
+permanent
+permanent
+clarinet
+clarinet
+clarinet
+clarinet
+clarinet
+minimal
+minimal
+minimal
+a little road that  leads off station square
+prosperous
+prosperous
+disused
+run-down
+major
+major
+chief
+major
+chief
+chief
+major
+major
+chief
+precious metals
+precious metals
+precious metals
+the mayor and all the other dignitaries
+officials from the town
+slides
+whiteboard
+turn off
+flowers
+talk 
+slide show
+mushrooms 
+pick some afterwards
+afterwards
+variety
+varieties
+variety
+varieties
+variety
+varieties
+attitudes
+patients
+patient
+patient
+patients
+competitive advantages
+intense competition
+satisfy the needs
+stand out from the crowd
+set up a company
+running cost
+make profits
+make ends meet
+make ends meet
+make ends meet
+good value for money
+cost reduction measures
+reduction
+business plan
+handle
+complaints
+complaint
+complaint
+complaint
+plaint
+plaint
+complaint
+curb car use
+curb
+car 
+emissions
+mission
+car emissions
+emissions
+exhaust
+fumes
+perfume
+fragrance
+fragrance
+gerator
+frigerator
+refrigerator
+cause air pollution
+pollution
+cause
+cause air pollution
+tackled pollution
+aa bad harvest in agriculture
+start from scratch
+prestigious
+drive prestigious car
+positive role models
+devoted fans
+impoverished country
+etiquette
+edit
+consumer 
+society
+online
+excess
+debt
+debts
+tackle
+foster
+stifle creativity
+criminal
+detension
+giant
+traditional fossil fuels
+fines
+energy conservation
+extra-curricular 
+pursue
+quality
+emotional
+cinema
+primary school
+secondary
+third
+primary
+secondary
+flute
+flute
+oboe
+oboe
+fluteoboe
+oboe
+flute
+flute
+oboe
+cinema
+corridor
+corridor
+corner
+piano
+corridor
+corridor
+listening
+audience
+less strict
+less strict
+more limited
+adjoining
+adjoining
+string instrument
+piano
+violin
+cello
+cello
+cello
+flute
+precious metals
+skating
+skiing
+management
+in charge of
+in charge of
+retailers
+retailers
+retailers
+most of the one side undamaged
+nearly all of the ... survived intact
+survived intacr
+spotting unusual birds
+see rare birds
+skiing
+skiing
+fade into obscrity
+obscurity
+fade into obscurity
+affecting
+migration
+scrutiny
+scrutiny
+scrutiny
+scrutiny
+examination
+examination
+scrunity
+prestige
+status
+prestige
+status
+major retailers
+retailers
+chain stores
+undamages
+survived intact
+canal
+canal
+canal
+canal
+canal
+climate change
+clarinet
+flute
+the first person to study
+unlike all previous studies
+fade into obscurity
+obscurity
+providing
+sponsor
+providing
+sponsor
+providing
+to the delight of 
+appeal to 
+descend into confusion
+experience confusion
+harmony
+situated
+death rate
+mortality
+mortality
+mortality
+mortality
+cast doubt on 
+undermined
+undermined
+carnival
+carnival
+carnival
+ceremony
+rite
+rite 
+ceremony
+avoid
+steered clear
+strategy
+tactics
+revise
+review
+revise
+review
+pedestrian
+amendment
+amendment
+check
+amendment
+check
+amendment
+excelled at 
+used to be lacking
+jewllery 
+ring 
+bracelets
+cabin
+cottage
+cabin
+cattle
+skating
+contrast
+prosperous
+The prosperous
+reference
+rehearsal
+in charge of 
+be responsibile for
+responsible
+craft
+craft
+craft
+boat
+less strict
+more limited
+boosting their employment prospects
+valuable element for their cv when they're applying for jobs
+mat not realise
+isn't necessary conscious of the message
+compensation
+compensation
+audience
+discrepancy
+impose
+detention
+exempted
+tuition
+tutor
+fees
+educational equality
+educational equality
+educational equality
+educational equality
+the equal access to education
+free-interest loans
+financial support 
+the cost of learning 
+break the  of poverty
+vocational training
+bridge the gap between rich and poor
+close the economic divide
+the education system
+receive a good education
+a well-educated workforce
+public schools
+notice board
+etcetera
+Tower of London
+have a look = read
+coach
+fairly short
+figure
+architect
+pity
+sightseeing
+sightseeing
+cathedral
+cathedral
+castle
+castle
+cattle
+cattle
+castle
+cathedral
+cattle
+castle
+art gallery
+gallery
+gallery
+botanical
+botanical
+botanical
+swan
+swan
+homestay family
+proportion of 
+singapore
+singapore
+singapore
+farewell
+venue
+invitation
+invite
+invent
+invitation
+draw the line
+envelope
+envelope
+dictionaries
+student leader student representative
+coach
+coach
+coach
+minibus
+coachload
+coachload
+cruise
+cruise
+cruise
+cruise
+bushwalk
+bushwalk
+bush 
+bushwalk
+reptile
+reptile
+departure
+depart
+department
+depart
+departure
+provisional
+visional
+vision
+visional
+provisional
+visional
+fine
+fare
+fees
+tax
+start at
+minimum
+minimum
+start at
+renew
+renew
+renew
+nominal
+nominal
+indeed
+assume
+counter
+count
+get need
+resident author
+resident
+residences
+
+made up my mind
+gear
+gear
+gear
+presume
+manual
+manual
+manual
+manual
+cash price
+cash price
+valuation
+valuation
+mileage
+mileage
+mileage
+royal blue
+metallic grey
+metallic
+metal
+reasonable
+north-west
+en suite
+en suite
+en suite
+suit
+in terms of
+definitely
+excursion
+excursion
+cruise
+cruise
+excursion
+cruise
+steamship
+fantastic
+assume
+holding pen
+holding pen
+trek
+trek
+trek
+belong to the lake
+trail
+trail
+trail
+repair
+repair kit
+remote
+mayor
+mayor
+councillor
+councillor
+councillor
+choir
+choir
+choir
+sun set
+across
+on the opposite 
+on the opposite
+demonstration
+stuff
+appointment
+quality
+permanent
+permanent
+allergic
+counsel
+counseling
+chase up
+chase up
+contact
+get on
+you're 
+
+
+
+

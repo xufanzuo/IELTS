@@ -1,0 +1,12 @@
+# Address
+street
+avenue
+road
+lane
+drive
+university drive
+square
+house
+district
+
+# 数字
