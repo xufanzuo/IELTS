@@ -1522,7 +1522,48 @@ dryers
 hairdryers
 hairdryers
 photo card
-
-
+cattle
+castle
+model of machine
+for global competition such as this you need to make sure the technical details you're given are accurate and thorough.
+strangers
+strangers
+erosion of the soil
+erosino of the soil
+erosion of the soil
+erosion of the soil
+erosion of the soil
+erosion of the soil
+islands
+islands
+forest
+forestation
+deforestation
+deforestation
+forestation
+forest
+deforestation
+log
+logging
+also needs to be more emphasis on its expansion.
+exhibition
+scholar
+management
+in charge of 
+descend into confusion
+experience confusion
+fade into obscurity
+descirbe
+New memebers should describe any health problems
+You are asked to fill in questionnaire giving details of any health problems
+describe = giving details of 
+erosion of the soil
+standard
+criteria
+carnival
+undamaged
+survival intact
+debated
+debatable
 
 
