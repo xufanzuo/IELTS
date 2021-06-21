@@ -230,3 +230,234 @@ seeing rare birds
 spotting unusual birds
 fade into obscurity
 fade into obscurity
+undamaged
+survival intact
+contrast
+contrast
+trast
+contrast
+precious metals
+harmony
+harmony
+harmony
+harmony
+harmony
+harmony
+deprived areas
+deprived
+socially-disadvantaged
+socially-disadvantaged
+socially-disadvantaged
+deprived areas
+death rate
+mortality
+mortality rate
+death rate
+death rate
+mortality rate
+canal
+canal
+canal
+canal
+canal
+canal
+canal
+canal
+canal
+canal
+disused
+disused
+run-down
+run-down
+disused
+disused
+run-down
+run-down
+amendment
+amendment
+amendment
+amendment
+amendment
+check
+check
+check
+amendment
+compensation
+composition
+position
+composition
+compensation
+compensation
+scrutiny
+scrutiny
+scrutiny
+scrutiny
+being subjected to close exmination
+examination
+examination
+scrutiny
+external
+external bodies
+bodies
+bodies
+external
+external
+external
+external 
+bodies
+species spread
+species
+species
+spread
+extended the habitat
+extended the habitat
+habitat
+counter
+he attempted to counter the effect by .. interoducing lead
+lead
+attempt
+counter
+avoid
+avoid
+counter
+tips
+sharp point
+fossil
+non-fossil-based fuels
+renewable energy
+renewable energy
+renewable energy
+non-fossil-based fuels
+a successful use
+an example of a successful use
+shown to work
+reconnect
+linked for the first time
+eliminate
+eliminate
+eliminate
+surprise
+hadn't expect
+across the road from bank
+incorporates a variety of art forms
+dance singing animation live actots
+similar
+similar like 
+similar
+a small winding road tuning off on the right
+a little road that leads off station square
+young professional people
+graduate embarking on careers
+rapidly-growing group of residents
+rapidly-growing group 
+rapidly
+fast-growing 
+allergic to
+cheese
+innovative
+innovative
+innovation
+innocent
+intense
+dramatically
+dramatically
+vary
+discrepancy
+discrepancy
+discrepancy
+discrepancy
+discrepancy
+discrepancy
+discrepancy
+classify
+categorize..into
+categorize
+categorize
+categorize
+an acceptance that not all diseases can be totall eliminated
+always be prone to illness
+keep for
+birds which feed on insects
+insects
+planning restrictions
+restriction
+restriction
+restriction
+plnning restrictions
+planning restrictions
+planning restrictions
+planning permission
+planning permission
+planning restrictions
+pattern
+trends
+trends
+regularities
+regularities
+regularities
+regularities
+pattern
+trends
+regularities
+name
+name
+name
+anonymous
+anonymous
+anonymous
+source
+one-to-one tuition
+predator
+predator
+pedestrian
+vegetarian
+swimming
+dip in hte ocean
+cabin
+cabin
+cabin 
+cabin
+cabin
+cabin
+clarinet
+clarinet
+clarinet
+clarinet
+clarinet
+rehearsal
+rehearsal
+dress rehearsa
+parade
+parade
+drummer
+carnival
+carnival
+curriculum vita
+painting
+wallpapering
+painting
+wallpapering
+renewed
+renewed
+driving a renewed interest
+to the delight of 
+appeal to
+market
+marketed
+comparison
+comparison
+similar to
+prosperous
+prosperous
+prosperous
+sperous
+steered clear
+avoid
+steered clear
+avoid
+steered clear
+avoid
+avoid
+indentify
+identify
+discover
